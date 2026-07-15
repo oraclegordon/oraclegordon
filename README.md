@@ -1,9 +1,12 @@
 
 
+
 <div align="center">
 <br>
-<img width="1200" height="654" alt="Untitled104_20260622135145" src="1000000224.png" />
-
+<img width="1200" height="654" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
+  
+<img width="900" height="300" alt="Untitled105_20260622165420" src="Oracle-Barbara-Gordon-feature.jpg" />
+  
 $\color{#664e6b}{\textsf{Please Be My Friend!!}}$
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=ab99b8&center=true&vCenter=true&width=435&lines=;+"Gotham+should+be+safe+again.+;+Well.+.+.;+Until+the+next+thing.;+There's+always+a+next+thing..")
@@ -11,7 +14,7 @@ $\color{#664e6b}{\textsf{Please Be My Friend!!}}$
 
 $\color{#402a55}{\textsf{Barbara Joan Gordon.}}$
 
-<img width="1200" height="400" alt="Untitled105_20260622165420" src="Oracle-Barbara-Gordon-feature.jpg" />
+
 <br>
 <br>
 <br>
@@ -29,7 +32,7 @@ https://github.com/user-attachments/assets/4efd9f6f-37c8-4701-9f8d-aeee3de11c2b
 
 
 <br>
-<img width="1200" height="654" alt="Untitled104_20260622170604" src="1000000224.png" />
+<img width="1200" height="654" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
 <br>
 <br>
 
