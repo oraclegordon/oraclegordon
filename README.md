@@ -3,9 +3,9 @@
 
 <div align="center">
 <br>
-<img width="1200" height="654" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
+<img width="1200" height="300" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
   
-<img width="900" height="300" alt="Untitled105_20260622165420" src="Oracle-Barbara-Gordon-feature.jpg" />
+<img width="400" height="300" alt="Untitled105_20260622165420" src="Oracle-Barbara-Gordon-feature.jpg" />
   
 $\color{#664e6b}{\textsf{Please Be My Friend!!}}$
 
@@ -34,7 +34,7 @@ https://github.com/user-attachments/assets/4efd9f6f-37c8-4701-9f8d-aeee3de11c2b
 
 
 <br>
-<img width="1200" height="654" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
+<img width="1200" height="300" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
 <br>
 <br>
 
