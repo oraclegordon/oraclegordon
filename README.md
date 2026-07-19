@@ -38,4 +38,7 @@ https://github.com/user-attachments/assets/4efd9f6f-37c8-4701-9f8d-aeee3de11c2b
 <br>
 <br>
 
+$\color{#664e6b}{\textsf{⛧°.⋆See me on!!⋆.°⛧}}$
+<br>
+⛧°.⋆[Roblox](https://www.roblox.com/share?code=e6787c1dc6f3fe48a21ea480bd69fd69&type=Profile&source=ProfileShare&stamp=1784427577117)⋆.°⛧
 </div>
