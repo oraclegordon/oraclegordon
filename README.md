@@ -17,9 +17,9 @@ $\color{#664e6b}{\textsf{I would probably be the one to friend you though hehe!}
 $\color{#402a55}{\textsf{Barbara Joan Gordon.}}$
 
 
-<br>
-<br>
-<br>
+
+[⛧°.⋆Friends!!⋆.°⛧](https://github.com/oraclegordon/PPL-I-recognize-friend-or-not-nicknames-)
+
 
 $\color{#ab99b8}{\textsf{✩░▒▓▆▅▃▂▁𝕲𝖔𝖙𝖍𝖆𝖒𝕮𝖎𝖙𝖞▁▂▃▅▆▓▒░✩}}$
 
@@ -37,6 +37,7 @@ https://github.com/user-attachments/assets/4efd9f6f-37c8-4701-9f8d-aeee3de11c2b
 <img width="1200" height="300" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
 <br>
 <br>
+
 
 $\color{#664e6b}{\textsf{⛧°.⋆See me on!!⋆.°⛧}}$
 <br>
