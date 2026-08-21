@@ -30,11 +30,7 @@ $\color{#1bb9ad}{\textsf{Barbara Joan Gordon.}}$
 
 <img width="736" height="989" alt="31000000651" src="https://github.com/user-attachments/assets/7fbeb18f-4f33-4c8b-98f4-0fcda39b9979" />
 
-$\color{#1bb9ad}{\textsf{⛧°.⋆Favorite Song!!⋆.°⛧}}$
-<br>
-
-
-https://github.com/user-attachments/assets/4efd9f6f-37c8-4701-9f8d-aeee3de11c2b
+<sub>BAT-ICONS ARE IN THE MAKING ! PEOPLE OF THE BATFAMILY WILL BE ASKED BEFORE BEING ADDED !</sub>
 
 
 <br>
