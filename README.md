@@ -13,7 +13,8 @@
   
 $\color{#664e6b}{\textsf{Please Be My Friend!!}}$
 
-$\color{#664e6b}{\textsf{I would probably be the one to friend you though hehe!}}$
+<img width="600" height="330" alt="1000000635" src="https://github.com/user-attachments/assets/1a7ba651-7e05-4ccc-a00f-3366e90fead4" />
+
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=ab99b8&center=true&vCenter=true&width=435&lines=;+"Gotham+should+be+safe+again.+;+Well.+.+.;+Until+the+next+thing.;+There's+always+a+next+thing..")
   
