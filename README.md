@@ -33,6 +33,11 @@ $\color{#1bb9ad}{\textsf{Barbara Joan Gordon.}}$
 <sub>BAT-ICONS ARE IN THE MAKING ! PEOPLE OF THE BATFAMILY WILL BE ASKED BEFORE BEING ADDED !</sub>
 
 
+ VOTING:
+ 
+[<kbd>Nightwing</kbd>](https://votefornightw.straw.page)
+
+
 <br>
 <img width="1466" height="520" alt="1000000627" src="https://github.com/user-attachments/assets/359f2d62-754f-4e68-9b17-3d284165a2f4"
 <br>
