@@ -4,7 +4,7 @@
 <div align="center">
 <br>
 
-##THIS IS IN REWORK.
+<sub>THE BARBARA GORDON OF PONYTOWN</sub>
 
 <img width="1466" height="520" alt="1000000626" src="https://github.com/user-attachments/assets/5011d528-c4fd-4d88-b82c-e2fe4e92d24e" />
 
