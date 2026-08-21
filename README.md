@@ -11,27 +11,27 @@
   
 <IMG width="300" height="350" alt="100000062" src="https://github.com/user-attachments/assets/1ff6df8c-e84f-4e3c-90aa-de9b403388a9" />
   
-$\color{#664e6b}{\textsf{Please Be My Friend!!}}$
+$\color{#1bb9ad}{\textsf{Please Be My Friend!!}}$
 
 <img width="600" height="330" alt="1000000635" src="https://github.com/user-attachments/assets/1a7ba651-7e05-4ccc-a00f-3366e90fead4" />
 
 
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=ab99b8&center=true&vCenter=true&width=435&lines=;+"Gotham+should+be+safe+again.+;+Well.+.+.;+Until+the+next+thing.;+There's+always+a+next+thing..")
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=1bb9ad&center=true&vCenter=true&width=435&lines=;+"Gotham+should+be+safe+again.+;+Well.+.+.;+Until+the+next+thing.;+There's+always+a+next+thing..")
   
 
-$\color{#402a55}{\textsf{Barbara Joan Gordon.}}$
+$\color{#1bb9ad}{\textsf{Barbara Joan Gordon.}}$
 
 
 
 [⛧°.⋆Friends!!⋆.°⛧](https://github.com/oraclegordon/PPL-I-recognize-friend-or-not-nicknames-)
 
 
-$\color{#ab99b8}{\textsf{✩░▒▓▆▅▃▂▁𝕲𝖔𝖙𝖍𝖆𝖒𝕮𝖎𝖙𝖞▁▂▃▅▆▓▒░✩}}$
+$\color{#1bb9ad}{\textsf{✩░▒▓▆▅▃▂▁𝕲𝖔𝖙𝖍𝖆𝖒𝕮𝖎𝖙𝖞▁▂▃▅▆▓▒░✩}}$
 
 <img width="600" height="450" alt="Future_Gotham" src="https://github.com/user-attachments/assets/bfe485c8-2ac4-4da0-8980-210298ba9b44" />
 <br>
 
-$\color{#664e6b}{\textsf{⛧°.⋆Favorite Song!!⋆.°⛧}}$
+$\color{#1bb9ad}{\textsf{⛧°.⋆Favorite Song!!⋆.°⛧}}$
 <br>
 
 
