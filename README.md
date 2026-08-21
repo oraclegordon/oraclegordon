@@ -6,10 +6,10 @@
 
 ##THIS IS IN REWORK.
 
+<img width="1466" height="520" alt="1000000626" src="https://github.com/user-attachments/assets/5011d528-c4fd-4d88-b82c-e2fe4e92d24e" />
+
   
-<img width="1200" height="300" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
-  
-<img width="400" height="300" alt="Untitled105_20260622165420" src="Oracle-Barbara-Gordon-feature.jpg" />
+<IMG width="300" height="350" alt="100000062" src="https://github.com/user-attachments/assets/1ff6df8c-e84f-4e3c-90aa-de9b403388a9" />
   
 $\color{#664e6b}{\textsf{Please Be My Friend!!}}$
 
@@ -38,7 +38,7 @@ https://github.com/user-attachments/assets/4efd9f6f-37c8-4701-9f8d-aeee3de11c2b
 
 
 <br>
-<img width="1200" height="300" alt="1000000224" src="https://github.com/user-attachments/assets/792b6492-b843-4e08-8019-6e32f4487071" />
+<img width="1466" height="520" alt="1000000627" src="https://github.com/user-attachments/assets/359f2d62-754f-4e68-9b17-3d284165a2f4"
 <br>
 <br>
 
