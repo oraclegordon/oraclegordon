@@ -26,10 +26,9 @@ $\color{#1bb9ad}{\textsf{Barbara Joan Gordon.}}$
 [⛧°.⋆Friends!!⋆.°⛧](https://github.com/oraclegordon/PPL-I-recognize-friend-or-not-nicknames-)
 
 
-$\color{#1bb9ad}{\textsf{✩░▒▓▆▅▃▂▁𝕲𝖔𝖙𝖍𝖆𝖒𝕮𝖎𝖙𝖞▁▂▃▅▆▓▒░✩}}$
+`MEET THE BATFAMILY`
 
-<img width="600" height="450" alt="Future_Gotham" src="https://github.com/user-attachments/assets/bfe485c8-2ac4-4da0-8980-210298ba9b44" />
-<br>
+<img width="736" height="989" alt="31000000651" src="https://github.com/user-attachments/assets/7fbeb18f-4f33-4c8b-98f4-0fcda39b9979" />
 
 $\color{#1bb9ad}{\textsf{⛧°.⋆Favorite Song!!⋆.°⛧}}$
 <br>
