@@ -9,9 +9,9 @@
 <img width="1466" height="520" alt="1000000626" src="https://github.com/user-attachments/assets/5011d528-c4fd-4d88-b82c-e2fe4e92d24e" />
 
   
-<IMG width="300" height="350" alt="100000062" src="https://github.com/user-attachments/assets/1ff6df8c-e84f-4e3c-90aa-de9b403388a9" />
-  
-$\color{#1bb9ad}{\textsf{Please Be My Friend!!}}$
+<IMG width="500" height="500" alt="1000000751" SRC="https://github.com/user-attachments/assets/f05c9470-f287-4e08-b964-9b0478b48d6d" />
+
+$\color{#1bb9ad}{\textsf{Be my Friend , I pose no harm!}}$
 
 <img width="600" height="330" alt="1000000635" src="https://github.com/user-attachments/assets/1a7ba651-7e05-4ccc-a00f-3366e90fead4" />
 
