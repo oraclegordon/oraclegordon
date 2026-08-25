@@ -9,11 +9,16 @@
 <img width="1466" height="520" alt="1000000626" src="https://github.com/user-attachments/assets/5011d528-c4fd-4d88-b82c-e2fe4e92d24e" />
 
   
-<IMG width="500" height="500" alt="1000000751" SRC="https://github.com/user-attachments/assets/f05c9470-f287-4e08-b964-9b0478b48d6d" />
+<IMG width="300" height="300" alt="1000000751" SRC="https://github.com/user-attachments/assets/f05c9470-f287-4e08-b964-9b0478b48d6d" />
 
 $\color{#1bb9ad}{\textsf{Be my Friend , I pose no harm!}}$
 
-<img width="600" height="330" alt="1000000635" src="https://github.com/user-attachments/assets/1a7ba651-7e05-4ccc-a00f-3366e90fead4" />
+<IMG width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/20971041-4df0-4023-97b9-01c9a1fc0179" />
+<br>
+<br>
+<IMG width="100" height="84" alt="1000000622" SRC="https://github.com/user-attachments/assets/913de665-cc17-4a97-84b7-d78a0429db65" />
+<img width="100" height="84" alt="1000000621" src="https://github.com/user-attachments/assets/ba3610f9-0bc8-49c2-93e3-6e4ecbb2d228" />
+<img width="100" height="84" alt="1000000620" src="https://github.com/user-attachments/assets/0a4dd67a-266e-48cd-a583-c6ec33bc407f" />
 
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=1bb9ad&center=true&vCenter=true&width=435&lines=;+"Gotham+should+be+safe+again.+;+Well.+.+.;+Until+the+next+thing.;+There's+always+a+next+thing..")
@@ -21,6 +26,8 @@ $\color{#1bb9ad}{\textsf{Be my Friend , I pose no harm!}}$
 
 $\color{#1bb9ad}{\textsf{Barbara Joan Gordon.}}$
 
+
+<IMG width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/20971041-4df0-4023-97b9-01c9a1fc0179" />
 
 
 [⛧°.⋆Friends!!⋆.°⛧](https://github.com/oraclegordon/PPL-I-recognize-friend-or-not-nicknames-)
