@@ -8,6 +8,11 @@
 
 <img width="1466" height="520" alt="1000000626" src="https://github.com/user-attachments/assets/5011d528-c4fd-4d88-b82c-e2fe4e92d24e" />
 
+
+<kbd>$\color={-currently unavailable-}$</kbd>
+
+<img width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/5bfb501c-a884-4b18-9783-24331682b2ae" />
+
   
 <IMG width="300" height="300" alt="1000000751" SRC="https://github.com/user-attachments/assets/f05c9470-f287-4e08-b964-9b0478b48d6d" />
 
@@ -24,7 +29,12 @@ $\color{#1bb9ad}{\textsf{Be my Friend , I pose no harm!}}$
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=1bb9ad&center=true&vCenter=true&width=435&lines=;+"Gotham+should+be+safe+again.+;+Well.+.+.;+Until+the+next+thing.;+There's+always+a+next+thing..")
   
 
-$\color{#1bb9ad}{\textsf{Barbara Joan Gordon.}}$
+$\color{#1bb9ad}{\textsf{Barbara Joan Gordon of.}}$
+
+[<kbd>@cosplaytown</kbd>](https://github.com/cosplaytown)
+[<kbd>@charactersofpt</kbd>](https://github.com/charactersofpt)
+
+
 
 
 <IMG width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/20971041-4df0-4023-97b9-01c9a1fc0179" />
