@@ -61,7 +61,5 @@ $\color{#1bb9ad}{\textsf{Barbara Joan Gordon of.}}$
 <br>
 
 
-$\color{#664e6b}{\textsf{⛧°.⋆See me on!!⋆.°⛧}}$
-<br>
-⛧°.⋆[Roblox](https://www.roblox.com/share?code=e6787c1dc6f3fe48a21ea480bd69fd69&type=Profile&source=ProfileShare&stamp=1784427577117)⋆.°⛧
+
 </div>
