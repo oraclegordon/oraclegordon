@@ -18,6 +18,11 @@
 
 $\color{#1bb9ad}{\textsf{Be my Friend , I pose no harm!}}$
 
+<img width="150" height="20" alt="1000000923" src="https://github.com/user-attachments/assets/2cddee4f-75ba-4eb5-99e7-99ded1740567" />
+<img width="150" height="20" alt="1000000930" src="https://github.com/user-attachments/assets/513a7220-2723-45bf-8a24-775141a46ca6" />
+<img width="150" height="20" alt="1000000929" src="https://github.com/user-attachments/assets/8af34ead-b1f5-4a27-b5b9-c6cc07ea2cbe" />
+
+
 <IMG width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/20971041-4df0-4023-97b9-01c9a1fc0179" />
 <br>
 <br>
