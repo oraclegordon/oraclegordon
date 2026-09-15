@@ -1,70 +1,41 @@
-
-
-
-<div align="center">
+<img alt="Untitled24_20260914190802" src="https://github.com/user-attachments/assets/6b122eb2-14ca-43b7-ba07-539db97912f1" />
+<p align="center">
+  <kbd>NEVER SHALL YOU TAKE INSPO NOR COPY OF ANYTHING WITHOUT THY PERMISSION.</kbd>
+  <kbd>THIS READ.ME IS A WIP</kbd>
 <br>
-
-## <sub>THE BARBARA GORDON OF PONYTOWN</sub>
-
-<img width="1466" height="520" alt="1000000626" src="https://github.com/user-attachments/assets/5011d528-c4fd-4d88-b82c-e2fe4e92d24e" />
-
-
-<kbd>$\color={-currently unavailable-}$</kbd>
-
-<img width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/5bfb501c-a884-4b18-9783-24331682b2ae" />
-
+<p align="center">
+ <img alt="Untitled29_20260914201927" src="https://github.com/user-attachments/assets/d50625a1-7fa5-41e1-b17d-c774ac0d5ce1" />
+</p>
+<p align="center">
   
-<IMG width="300" height="300" alt="1000000751" SRC="https://github.com/user-attachments/assets/f05c9470-f287-4e08-b964-9b0478b48d6d" />
-
-$\color{#1bb9ad}{\textsf{Be my Friend , I pose no harm!}}$
-
-<img width="150" height="20" alt="1000000923" src="https://github.com/user-attachments/assets/2cddee4f-75ba-4eb5-99e7-99ded1740567" />
-<img width="150" height="20" alt="1000000930" src="https://github.com/user-attachments/assets/513a7220-2723-45bf-8a24-775141a46ca6" />
-<img width="150" height="20" alt="1000000929" src="https://github.com/user-attachments/assets/8af34ead-b1f5-4a27-b5b9-c6cc07ea2cbe" />
+<img src="https://hits.sh/github.com/oraclegordon.svg?label=SysOps!!&extraCount=970&labelColor=3A84B7&color=555653" alt="Visitor count">
+<img src="https://img.shields.io/github/followers/oraclegordon?style=flat&label=Nodes!&labelColor=3A84B7&color=555653" alt="Profile followers">
 
 
-<IMG width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/20971041-4df0-4023-97b9-01c9a1fc0179" />
+</p>
+<p align="center">
+<details>
+  <summary>BYI</summary>
+  <table style="border: 2px solid #834E74; border-radius: 8px;">
+  <tr>
+    <td width="50%" style="padding: 20px; border-right: 2px solid #834E74;">
+  Please have respect. I'm friendly—but not to those who copy or harass me. I heavily avoid those who cosplay the same character as me , such as Barbara Gordon, because they tend to ignore/treat me like I'm problematic. Please be aware that I hate being replaced, especially by my friends. I'm usually afk , if not , I am likely chatting or interacting with people—even to those who I don't understand or have no mutuals with. Please do not mistake me as a woman(she/her), if you don't know what my gender is , They/Them or He/Him is preferred...
+    </td>
+  </tr>
+  </table>
+    <br>
+  </details>
+  <details>
+    <summary>DNI</summary>
+    <table style="border: 2px solid #834E74; border-radius: 8px;">
+  <tr>
+    <td width="50%" style="padding: 20px; border-right: 2px solid #834E74;">Homophobes , Transphobes , Trollers , Stalkers , Batcest , Incest , Sexists , Pedos , Racists , Ableists
+    </td>
+  </tr>
+    </table>
+  </details>
+</p>
 <br>
 <br>
-<IMG width="100" height="84" alt="1000000622" SRC="https://github.com/user-attachments/assets/913de665-cc17-4a97-84b7-d78a0429db65" />
-<img width="100" height="84" alt="1000000621" src="https://github.com/user-attachments/assets/ba3610f9-0bc8-49c2-93e3-6e4ecbb2d228" />
-<img width="100" height="84" alt="1000000620" src="https://github.com/user-attachments/assets/0a4dd67a-266e-48cd-a583-c6ec33bc407f" />
-
-
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=1bb9ad&center=true&vCenter=true&width=435&lines=;+"Gotham+should+be+safe+again.+;+Well.+.+.;+Until+the+next+thing.;+There's+always+a+next+thing..")
-  
-
-$\color{#1bb9ad}{\textsf{Barbara Joan Gordon of.}}$
-
-[<kbd>@cosplaytown</kbd>](https://github.com/cosplaytown)
-[<kbd>@charactersofpt</kbd>](https://github.com/charactersofpt)
-
-
-
-
-<IMG width="735" height="115" alt="1000000753" src="https://github.com/user-attachments/assets/20971041-4df0-4023-97b9-01c9a1fc0179" />
-
-
-[⛧°.⋆Friends!!⋆.°⛧](https://github.com/oraclegordon/PPL-I-recognize-friend-or-not-nicknames-)
-
-
-`MEET THE BATFAMILY`
-
-<img width="736" height="989" alt="31000000651" src="https://github.com/user-attachments/assets/7fbeb18f-4f33-4c8b-98f4-0fcda39b9979" />
-
-<sub>BAT-ICONS ARE IN THE MAKING ! PEOPLE OF THE BATFAMILY WILL BE ASKED BEFORE BEING ADDED !</sub>
-
-
- VOTING:
- 
-[<kbd>Nightwing</kbd>](https://votefornightw.straw.page)
-
-
 <br>
-<img width="1466" height="520" alt="1000000627" src="https://github.com/user-attachments/assets/359f2d62-754f-4e68-9b17-3d284165a2f4"
-<br>
-<br>
-
-
-
-</div>
+<img alt="Untitled24_20260914191003" src="https://github.com/user-attachments/assets/5d36c73c-47a4-4310-b9a7-0b03497d248e" />
