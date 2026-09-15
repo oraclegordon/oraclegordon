@@ -1,6 +1,6 @@
 <img alt="Untitled24_20260914190802" src="https://github.com/user-attachments/assets/6b122eb2-14ca-43b7-ba07-539db97912f1" />
 <p align="center">
-  <kbd>NEVER SHALL YOU TAKE INSPO NOR COPY OF ANYTHING WITHOUT THY PERMISSION.</kbd>
+  <kbd>NEVER SHALL YOU TAKE INSPO NOR COPY OF ANYTHING WITHOUT THY PERMISSION. THIS APPLIES TO ALL PEOPLE.</kbd>
   <kbd>THIS READ.ME IS A WIP</kbd>
 <br>
 <p align="center">
