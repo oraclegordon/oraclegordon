@@ -14,6 +14,10 @@
 
 </p>
 <p align="center">
+  
+♯┆[strawpage](https://queerracle.straw.page)  .ᐟ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+</p>
+<p align="center">
 <details>
   <summary>BYI</summary>
   <table style="border: 2px solid #834E74; border-radius: 8px;">
