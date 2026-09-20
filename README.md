@@ -15,7 +15,7 @@
 </p>
 <p align="center">
   
-♯┆[strawpage](https://queerracle.straw.page)  .ᐟ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+♯┆[strawpage](https://queerracle.straw.page) , [discord](https://discord.com/users/1228273326464438325)  .ᐟ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 </p>
 <p align="center">
 <details>
