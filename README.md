@@ -1,10 +1,11 @@
-<img alt="Untitled24_20260914190802" src="https://github.com/user-attachments/assets/6b122eb2-14ca-43b7-ba07-539db97912f1" />
+<img alt="Untitled48_20260923230134" src="https://github.com/user-attachments/assets/d3b3d66e-f8b3-4bbf-9988-c49ddd0ec284" />
+
 <p align="center">
   <kbd>NEVER SHALL YOU TAKE INSPO NOR COPY OF ANYTHING WITHOUT THY PERMISSION. THIS APPLIES TO ALL PEOPLE.</kbd>
   <kbd>THIS READ.ME IS A WIP</kbd>
 <br>
 <p align="center">
- <img alt="Untitled29_20260914201927" src="https://github.com/user-attachments/assets/d50625a1-7fa5-41e1-b17d-c774ac0d5ce1" />
+ <img alt="Untitled50_20260923231126" src="https://github.com/user-attachments/assets/65ea11c1-67ef-4274-9ad5-9fff5550ea99" />
 </p>
 <p align="center">
   
@@ -15,7 +16,7 @@
 </p>
 <p align="center">
   
-♯┆[strawpage](https://queerracle.straw.page) , [discord](https://discord.com/users/1228273326464438325)  .ᐟ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+♯┆[strawpage](https://queerracle.straw.page) , [discord](https://discord.com/users/1228273326464438325)  .ᐟ ⠀⠀⠀⠀
 </p>
 <p align="center">
 <details>
@@ -42,4 +43,4 @@
 <br>
 <br>
 <br>
-<img alt="Untitled24_20260914191003" src="https://github.com/user-attachments/assets/5d36c73c-47a4-4310-b9a7-0b03497d248e" />
+<img alt="Untitled48_20260923231250" src="https://github.com/user-attachments/assets/cebe969e-9836-4261-999a-0112dc5be491" />
