@@ -8,7 +8,7 @@
  <img alt="Untitled50_20260923231126" src="https://github.com/user-attachments/assets/65ea11c1-67ef-4274-9ad5-9fff5550ea99" />
 </p>
 <p align="center">
- <sub>my birthday yayayay 🎂 !! </sub>
+
 </p>
 <p align="center">
   
